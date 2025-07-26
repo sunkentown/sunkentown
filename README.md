@@ -1,16 +1,16 @@
-## Hi there 👋
+<p align="center">
+<img src="https://files.catbox.moe/2wdcoc.png"/>
+</p>
+<p align="center">
+<img src="https://files.catbox.moe/y7enc8.png"/>
+</p>
+wip .... whoops. just read my rentry and you'll be fine. i love drawing in peoples strawpages when i can ^_^
+</p>
+RENTRY DIRECTORY:
 
-<!--
-**sunkentown/sunkentown** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ponytown centered rentry is a wip
 
-Here are some ideas to get you started:
+.co/soulcxtcher  ->  massive block of text including interets, byi and etc. not decorated at ALL.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<img src="https://files.catbox.moe/n553va.png"/>

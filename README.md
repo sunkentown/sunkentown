@@ -6,9 +6,9 @@
 </p>
 <p align="center">
 <br>
-wip .... whoops. I'll decorate it at some point. <br><br>HI! My name's <b>MAIL</b>, call me <b>GUN-HAT</b> if that's not your style.<br>ANY PRONOUNS , MINOR , NEURODIVERGENT (ocd,npd,autism,system)
+wip .... whoops. I'll decorate it at some point. <br><br>HI! My name's <b>MAIL</b>, call me <b>GUN-HAT</b> if that's not your style.<br>ANY PRONOUNS , MINOR , OCD NPD AUTISTIC<br>ponytown's gone WOKE!
 <br><br>
 Feel free to ask for my Discord <b>IF</b> I have you added or have talked to you.
 <br><br>
-I love to chat / whisper people, so if you're reading this because I whispered / chatted?! Hello! Hi!!
+I love to chat / whisper people, oops. #SAUCE<br>I also love saying stuff with #. #Cool.
 </p>

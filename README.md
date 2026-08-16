@@ -1,16 +1,13 @@
 <p align="center">
-<img src="https://files.catbox.moe/2wdcoc.png"/>
+<img src="https://64.media.tumblr.com/72b02d08b9862198321c1faf38a145b3/6f968a93c5b1c095-ba/s250x400/ce3da29eaf6de32886f6ccd7ae69ab82c60125a7.gifv">
+<h1>MAIL / GUNHAT</h1>
+<img src="https://64.media.tumblr.com/d612520734617b72ad08c03a85aafca6/6f968a93c5b1c095-f6/s250x400/5475f398ff146124d69efef4675d70515ff2f72f.gifv"/>
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/y7enc8.png"/>
+<br>
+wip .... whoops. I'll decorate it at some point. <br><br>HI! My name's <b>Mail</b>, call me <b>Gunhat</b> if that's not your style.<br>ANY PRONOUNS , MINOR , NEURODIVERGENT (ocd,npd,autism,system)
+<br><br>
+Feel free to ask for my Discord <b>IF</b> I have you added or have talked to you.
+<br><br>
+I love to chat / whisper people, so if you're reading this because I whispered / chatted?! Hello! Hi!!
 </p>
-wip .... whoops. just read my rentry and you'll be fine. i love drawing in peoples strawpages when i can ^_^
-</p>
-RENTRY DIRECTORY:
-
-ponytown centered rentry is a wip
-
-.co/soulcxtcher  ->  massive block of text including interets, byi and etc. not decorated at ALL.
-
-<p align="center">
-<img src="https://files.catbox.moe/n553va.png"/>

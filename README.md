@@ -1,5 +1,5 @@
 <p align="center">
-<h1>MAIL / GUN-HAT</h1>
+<h1>✉️ HI! MY NAME IS MAIL / GUN-HAT ✉️ </h1>
 </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/72b02d08b9862198321c1faf38a145b3/6f968a93c5b1c095-ba/s250x400/ce3da29eaf6de32886f6ccd7ae69ab82c60125a7.gifv"> <img src="https://64.media.tumblr.com/d612520734617b72ad08c03a85aafca6/6f968a93c5b1c095-f6/s250x400/5475f398ff146124d69efef4675d70515ff2f72f.gifv"/> 
